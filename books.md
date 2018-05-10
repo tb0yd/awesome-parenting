@@ -6,7 +6,6 @@
 - The Well-Behaved Child: Discipline That Really Works!
 - Raising An Emotionally Intelligent Child
 - And Baby Makes Three
-- The Rational Male - Positive Masculinity
 - How to Talk so Kids Will Listen. And Listen So Kids Will Talk
 - Smart But Scattered
 - "Parent Effectiveness Training
